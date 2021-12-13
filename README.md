@@ -4,6 +4,7 @@ las nuevas tecnologías, con ganas de superación personal, organizada y respons
 
 contacto
 -https://www.linkedin.com/in/valentin-belmut-ant%C3%BAnez-gonz%C3%A1les-084816212/
+
 -antunezgonzalesvgmail.com
 
 <!--
